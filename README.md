@@ -1,0 +1,1 @@
+# Origin-of-Closed-circle-of-suspects-in-Agatha-Christie
